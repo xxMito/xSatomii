@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xSatomii
+- 👋 Hi, I’m Mito
 - 👀 I watch anime
 - I know I suck at coding so you dont have to tell me 
 - Would be kinda cringe if you still told me so it's your loss, not mine
